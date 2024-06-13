@@ -4,4 +4,4 @@
 
 ! ! - im rarely online in ponytown but you can find me mostly in sp area :3 <a href="https://www.glitter-graphics.com"><img src="http://dl2.glitter-graphics.net/pub/128/128982dzxe7x9mi5.gif" width=33 height=33 border=0></a>
 
-<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/640/640381u02ck4kwdg.gif" width=33 height=33 border=0></a> - fyi im still a minor so dont do any uncomfortable things please ^_^ ! !
+<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/640/640381u02ck4kwdg.gif" width=33 height=29 border=0></a> - fyi im still a minor so dont do any uncomfortable things please ^_^ ! !
