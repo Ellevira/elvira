@@ -9,5 +9,8 @@
 please interact with me i promise i dont bite ! ! 
 <a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/644/644517m6eyw5693n.gif" width=33 height=33 border=0></a>
 
+![image](https://github.com/Ellevira/elvira/assets/148860958/45c58922-76d0-4bc4-ada6-1ac8cfcc9bdb) ![image](https://github.com/Ellevira/elvira/assets/148860958/0b602f28-ed79-4c45-beb1-ee5f64d1c23a) ![image](https://github.com/Ellevira/elvira/assets/148860958/99630b3c-f556-44c7-a8f3-fbc515b391e5)
+
+
 
 
