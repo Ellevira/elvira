@@ -6,8 +6,9 @@
 
  - im rarely online in ponytown but you can find me mostly in random areas with my github ☆⌒(ゝ｡  ∂) <a href="https://www.glitter-graphics.com"><img src="http://dl2.glitter-graphics.net/pub/128/128982dzxe7x9mi5.gif" width=33 height=33 border=0></a>
 
-<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/640/640381u02ck4kwdg.gif" width=33 height=29 border=0></a> - infos!!- im still a minor so dont do any uncomfortable things please (๑ > ᴗ < ๑)! ! im into multiple fandoms!! like.. uh south park, pjsk, deadplate, ranfren, genshin(?), tbhk and many more ( ˶°ㅁ°) !!
+<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/640/640381u02ck4kwdg.gif" width=33 height=29 border=0></a> - infos!!- im still a minor so dont do any uncomfortable things please (๑ > ᴗ < ๑)! ! im into multiple fandoms!! like.. uh south park, pjsk(?), deadplate, ranfren, genshin(?), tbhk and many more ( ˶°ㅁ°) !!
 also im an aroace or straight :D
+
 
 please interact with me i promise i dont bite ! ! 
 <a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/644/644517m6eyw5693n.gif" width=33 height=33 border=0></a>
