@@ -4,7 +4,7 @@
                                                     
 𝒉𝒆𝒍𝒍𝒐 𝒘𝒆𝒍𝒄𝒐𝒎𝒆 𝒕𝒐 𝒎𝒚 𝒑𝒓𝒐𝒇𝒊𝒍𝒆 !! ̤̮  <a href="https://www.glitter-graphics.com"><img src="http://dl4.glitter-graphics.net/pub/1743/1743514f57hg7iobh.gif" width=33 height=44 border=0></a>
 
- - im rarely online in ponytown but you can find me mostly in random areas with my github ☆⌒(ゝ｡  ∂) <a href="https://www.glitter-graphics.com"><img src="http://dl2.glitter-graphics.net/pub/128/128982dzxe7x9mi5.gif" width=33 height=33 border=0></a>
+ - im rarely online in ponytown but you can find me mostly in random areas with my acc linked (cannibal1sm. And Ellevira) ☆⌒(ゝ｡  ∂) <a href="https://www.glitter-graphics.com"><img src="http://dl2.glitter-graphics.net/pub/128/128982dzxe7x9mi5.gif" width=33 height=33 border=0></a>
 
 <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/640/640381u02ck4kwdg.gif" width=33 height=29 border=0></a> - infos!!- im still a minor so dont do any uncomfortable things please (๑ > ᴗ < ๑)! ! im into multiple fandoms!! like.. uh south park, pjsk(?), deadplate, ranfren, genshin(?), tbhk and many more ( ˶°ㅁ°) !!
 also im an aroace or straight :D
